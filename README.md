@@ -8,7 +8,7 @@
 ⭐️My hobby is watch cat🐱, listen to japanese music🎼, playing the game🎲.<br>
 ⭐️I am interested in everything that is technology💻 and cats🐱.<br>
 
-🔹🔹📌If you don't know what you are best, be best at everything. (by P'app)🔹🔹<br>
+🔹🔹🔹📌If you don't know what you are best, be best at everything. (by P'app)🔹🔹🔹<br>
 ![img](https://64.media.tumblr.com/0184df7e8207cf6450a436d5112dd53c/tumblr_pssshoTNXx1tawgedo1_r1_500.gifv) <br>
 
 
