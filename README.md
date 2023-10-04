@@ -9,8 +9,10 @@
 ⭐️I am interested in everything that is technology💻 and cats🐱.<br>
 
 🔹🔹🔹📌If you don't know what you are best, be best at everything. (by P'app)🔹🔹🔹<br>
-![img](https://64.media.tumblr.com/446ab35c8e031f467bdd0e08f95ac5b5/tumblr_pssshoTNXx1tawgedo2_r1_500.gifv) <br>
-
 
 I like to sleep and eat a lot too.<br><br>
+🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸
+
+[![An image of @nongsnail's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/nongsnail)](https://holopin.io/@nongsnail)
+
 🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸
