@@ -25,6 +25,8 @@ I like to sleep and eat a lot too.<br><br>
 <a href="https://fb.com/narisara limpisirisant" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="narisara limpisirisant" height="30" width="40" /></a>
 <a href="https://medium.com/@nongsnaily" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/medium.svg" alt="@nongsnaily" height="30" width="40" /></a>
 </p>
+buymeacoffee!! thank you
+https://www.buymeacoffee.com/narisara1509
 <br>
 <br>
 🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸
