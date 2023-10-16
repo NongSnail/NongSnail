@@ -14,7 +14,13 @@ I like to sleep and eat a lot too.<br><br>
 🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸
 
 [![An image of @nongsnail's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/nongsnail)](https://holopin.io/@nongsnail)
-
+<br>
+<br>
+For Hacktoberfest (My Repo)
+- https://github.com/NongSnail/ThaiDataCommunityHub
+- https://github.com/NongSnail/codejourney_internship_stories
+<br>
+<br>
 🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸✨🌸🌸
 <br>
 <br>
