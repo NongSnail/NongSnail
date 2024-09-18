@@ -5,7 +5,7 @@
 🎉🎉🎉Hello world!👋 I’m from Thailand.<br>
 ⭐️My name is Narisara Limpisirisant (fai). ⭐️You can call me 🐌NongSnail(น้องทาก).<br>
 ⭐️Graduated from the School of Information Technology, KMUTT.<br>
-⭐️I am Gold Microsoft Learn Student Ambassadors.🖥🌐💎<br>
+⭐️I am Former Gold Microsoft Learn Student Ambassador.🖥🌐💎<br>
 ⭐️My hobby is watch cat🐱, listen to japanese music🎼, playing the game🎲.<br>
 ⭐️I am interested in everything that is technology💻 and cats🐱.<br>
 
